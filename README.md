@@ -7,4 +7,4 @@ I follow some people, they offer excellent resources online, and mostly are free
 1.  James Briggs https://www.youtube.com/@jamesbriggs
 2.  Jay Alammar  https://www.youtube.com/channel/UCmOwsoHty5PrmE-3QhUBfPQ
 
-I donot suggest carefully go through too much people. It will be very suffering. 
+
